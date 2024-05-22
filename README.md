@@ -8,5 +8,3 @@ Meu nome é Allan Gabriel
 
 ### Você pode entrar em contato comigo 📫
 0000108996717sp@al.educacao.sp.gov.br
-
-https://giphy.com/clips/minecraft-microsoft-builder-minecraft-9zn5QnaEZuDlXtGAPZ

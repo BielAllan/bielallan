@@ -9,4 +9,4 @@ Meu nome é Allan Gabriel
 ### Você pode entrar em contato comigo 📫
 00001089796717sp@al.educacao.sp.gov.br
 
-![]<div style="width:480px"><iframe allow="fullscreen" frameBorder="0" height="270" src="https://giphy.com/embed/9zn5QnaEZuDlXtGAPZ/video" width="480"></iframe></div>
+![]https://giphy.com/clips/minecraft-microsoft-builder-minecraft-9zn5QnaEZuDlXtGAPZ
